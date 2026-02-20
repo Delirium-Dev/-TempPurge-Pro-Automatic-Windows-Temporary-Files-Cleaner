@@ -1,0 +1,1 @@
+# -TempPurge-Pro-Automatic-Windows-Temporary-Files-Cleaner
